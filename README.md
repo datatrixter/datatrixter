@@ -16,7 +16,7 @@ I’m on the lookout for collaborations that push the boundaries of medical tech
 
 ## 📫 How to Reach Me
 
-The best way to reach out and start a conversation is by emailing me at datatrixter@example.com. I’m open to discussions, opportunities, or simply exchanging ideas over a cup of virtual coffee.
+The best way to reach out and start a conversation is by emailing me at datatrixter@gmail.com. I’m open to discussions, opportunities, or simply exchanging ideas over a cup of virtual coffee.
 
 ## 😄 Pronouns
 
